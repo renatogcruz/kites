@@ -1,3 +1,3 @@
 # kites
 
-Designing kites for Matheus :)
+Kite design for my nephew Matheus :) :)
